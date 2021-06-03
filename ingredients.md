@@ -1,0 +1,1 @@
+We need to slice the tomatoes and the onion . Then , we need to add a tea spoon of salt and a tea spoon of red chili powder. Then we need to mix them .Then we need to spread the filling on one side of the slice of bread. Then we need to toast it. Then we eat it.
